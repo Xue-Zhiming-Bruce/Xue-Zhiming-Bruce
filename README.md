@@ -1,4 +1,4 @@
-👋 Hi, I’m Xue Zhiming
+👋 Hi, I’m Xue Zhiming, Data Analyst @ Bitget
 
 🎓 Master of IT in Business (AI Track) student at Singapore Management University
 
